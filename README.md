@@ -1,4 +1,4 @@
-# SEJA BEM VINDO(A)! 🤝
+# SEJA BEM VINDO(A)! BOM 🤝
 
 # SSH-PLUS
 
